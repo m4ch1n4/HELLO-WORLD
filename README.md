@@ -1,2 +1,2 @@
 # HELLO-WORLD
-Just another repository
+ Lol, all is  because I fuckd MAMP 
